@@ -1,16 +1,35 @@
-## Hi there 👋
+<p align="center">
+  <ins>ticket / blossom</ins>
+</p>
 
-<!--
-**cantoix/cantoix** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<p align="center">
+  <sub>any pronouns</sub>
+</p>
 
-Here are some ideas to get you started:
+<p align="center">
+  <sub>rarely play, mostly with friends</sub>
+</p>
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<p align="center">
+  <sub>phighting & pm</sub>
+</p>
+
+<p align="center">
+⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔
+</p>
+
+<p align="center">
+  <img width="200" height="220" alt="image" src=https://i.postimg.cc/RZPZWkSQ/image.png/>
+</p>
+
+<p align="center">
+  <a href="https://day50.straw.page/">strawpage</a>
+</p>
+
+<p align="center">
+  <sub>feel free to interact !</sub>
+</p>
+
+<p align="center">
+╰──────────────────────────────────────────────────────────────────────╮
+</p>
